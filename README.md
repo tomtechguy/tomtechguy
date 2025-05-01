@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @MEMENTO MORI
-- 👀 I’m interested in Coding
-- 📫 How to reach me tom.almarah@gmail.com and my youtube :] https://www.youtube.com/channel/UCpyBLeo-XorBPtY2W6dtQbA
+
